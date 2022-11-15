@@ -1,0 +1,1 @@
+# glowing-octo-funicular interested in making medical claims acessing simplified by being able to qulify or disqulify the practice of medical works. to ensure that the daily capitation is mentained and maximise the rejection rate while being able to reduce the loss ratio  
